@@ -1,0 +1,6 @@
+![juanboard_01](https://github.com/juanmichero/keebs/assets/125592627/d6b09c48-2356-4bf1-a65b-e63feda81d24)
+![juanboard_02](https://github.com/juanmichero/keebs/assets/125592627/7835ebf7-4485-45a2-a5c9-2e7309086b20)
+![juanboard_03](https://github.com/juanmichero/keebs/assets/125592627/8f0b70ae-ed12-4282-878f-b9b873d74dad)
+![juanboard_04](https://github.com/juanmichero/keebs/assets/125592627/7dd2355d-dcd9-4695-aa17-6bf2f384061d)
+![juanboard_05](https://github.com/juanmichero/keebs/assets/125592627/84f6299d-9796-4052-a064-3fc040c346c2)
+![juanboard_06](https://github.com/juanmichero/keebs/assets/125592627/6fe5c2ff-6459-4017-9689-bbc42f3ea91e)
