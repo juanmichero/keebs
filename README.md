@@ -1,6 +1,6 @@
 ...
 
-repo de teclados handwired !
+teclados handwired
 
 ...
 
